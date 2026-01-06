@@ -416,7 +416,11 @@ Người ta nhận thấy cả ông khách bán phá xang và mấy cô Hoa ki�
 
 -- Nước à? Nước à? Đâu đâu? Nước càng bắn lên cao, tia ra nhiều ngả. Nhân cũng gánh thùng chạy tới. Nhiều bàn tay hứng lấy nước. Người ta rửa tay, người ta rửa mặt. Anh hàng phở mà ta đã gặp nhặt một cái bát quăng gần đấy. Miệng reo:
 
--- Làm một bát đỡ khát đã... Anh kề bát vào cái vòi, hứng đầy nước, và định uống. Dân đang đứng nhìn vòi nước. Nước đã thành vũng dưới chân anh. Ngập cả đôi giầy. Dân cười sung sướng. Nhưng anh lại có vẻ suy nghĩ, như khi ta ngờ ngợ một cái gì. Chợt thấy anh hàng phở đưa bát lên miệng, anh bước tới, giằng lấy cái bát. Anh kêu: -Xin lỗi, đừng uống vội... Người ta ngơ ngác nhìn Dân. Anh nói với mọi người: -Nhỡ Pháp nó bỏ thuốc độc thì thế nào?
+-- Làm một bát đỡ khát đã... Anh kề bát vào cái vòi, hứng đầy nước, và định uống. Dân đang đứng nhìn vòi nước. Nước đã thành vũng dưới chân anh. Ngập cả đôi giầy. Dân cười sung sướng. Nhưng anh lại có vẻ suy nghĩ, như khi ta ngờ ngợ một cái gì. Chợt thấy anh hàng phở đưa bát lên miệng, anh bước tới, giằng lấy cái bát. Anh kêu:
+
+-- Xin lỗi, đừng uống vội... Người ta ngơ ngác nhìn Dân. Anh nói với mọi người:
+
+-- Nhỡ Pháp nó bỏ thuốc độc thì thế nào?
 
 Lo ngại làm sầm tối những nét mặt đang tươi vui. Người ta im phăng phắc, hoài nghi và tức bực. Những cái đầu khe khẽ gật đồng tình với Dân. Nước vẫn phụt lên. Dân nghĩ ngợi một lúc. Anh nói:
 
